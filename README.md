@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Kebanec
-- 👀 I’m interested in Ios developing 
+- 👀 I’m interested in IOS developing 
 - 🌱 I’m currently learning my 3rd year 
 - 💞️ I’m looking to collaborate on 
 - 📫 How to reach me Telegram @Kebanec 
